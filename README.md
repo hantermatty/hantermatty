@@ -11,4 +11,5 @@
 ## 📂 Projects
 👉 Check out my repositories below for examples of my work.  
 
-📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/tuoprofilo)
+📫 Connect with me on [LinkedIn](https://www.linkedin.com/in/matteo-fas)
+/
